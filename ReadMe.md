@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am very much interested in Programming, Coding, Problem Solving and Project Development. I like to implement and enhance my skills and knowledge in<br>real world projects.
+I am very much interested in Programming, Coding, Problem Solving and Project Development. I like to implement and enhance my skills and knowledge in real world projects.
 
 
 ## 🌐 Socials:
